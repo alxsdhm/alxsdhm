@@ -1,3 +1,3 @@
 ### hi there!
 
-i'm alexis. i'm a librarian, among other things. interested in tech (begrudingly) and the people who use it (enthusiastically). also police and prison abolition, crafts, making good things work better, building new things. [@alxsdhm](https://twitter.com/alxsdhm) on twitter, do @ me.
+i'm alexis. librarian by day. only interested in tech as a means of serving people. also: police & prison abolitionist/crafter/keyboard nerd/other hobbies as assigned. interested in making good things better and building things great. [@alxsdhm](https://twitter.com/alxsdhm) on twitter, do @ me.
